@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Emmmmaaaaaa
+- 👀 I’m so,, pretty,,,
